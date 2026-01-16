@@ -1,5 +1,12 @@
-# HORMIGÓN IMPRESO MADRID
-
+<h1 align="left">
+  HORMIGÓN IMPRESO MADRID
+  <img
+    src="https://raw.githubusercontent.com/hormigonimpresoenmadrid/hormigonimpresomadrid/refs/heads/main/hormigon-impreso-animado-madrid.webp"
+    alt="PaviGrupoHispana: Hormigón Impreso Madrid 2026"
+    align="right"
+    width="120"
+  />
+</h1>
 El **hormigón impreso Madrid** se ha posicionado como una de las soluciones de pavimentación decorativa más completas y eficientes para espacios exteriores. Su combinación de **resistencia estructural**, **acabados estéticos personalizables** y **coste contenido** lo convierten en una opción prioritaria para comunidades de vecinos, administraciones públicas y propietarios particulares que buscan una inversión duradera y visualmente atractiva.
 
 En este contexto, empresas especializadas como [PaviGrupoHispana](https://pavigrupohispana.es) destacan por su experiencia en la ejecución de proyectos de **pavimento impreso en Madrid**, aplicando técnicas profesionales adaptadas a las exigencias climáticas y urbanísticas de la Comunidad de Madrid.
