@@ -26,12 +26,6 @@ A continuación se muestran **ejemplos reales de suelos de hormigón impreso**, 
 
 ---
 
-## 🎥 Ejecución profesional de hormigón impreso en Madrid
-
-[![Hormigón impreso Madrid – proceso real de ejecución](https://img.youtube.com/vi/mW7lTgVUw9s/hqdefault.jpg)](https://www.youtube.com/watch?v=mW7lTgVUw9s)
-
----
-
 ## ¿Qué es el hormigón impreso y por qué es tendencia en Madrid?
 
 El **hormigón impreso**, también conocido como **hormigón estampado**, es un sistema de **pavimentación continua** que consiste en la aplicación de moldes y endurecedores de color sobre el hormigón fresco. Esta técnica permite reproducir con gran realismo acabados similares a:
@@ -198,3 +192,9 @@ Sí, siempre que esté correctamente dimensionado.
 El **hormigón impreso Madrid** representa una solución completa para pavimentación decorativa gracias a su **durabilidad**, **versatilidad estética** y **eficiencia económica**. Su uso en comunidades, ayuntamientos y viviendas privadas lo consolida como uno de los pavimentos más fiables del mercado.
 
 👉 Te invitamos a visitar [PaviGrupoHispana](https://pavigrupohispana.es) para **solicitar un presupuesto personalizado** y descubrir su **portfolio de proyectos realizados en Madrid**, donde el hormigón impreso demuestra todo su potencial.
+
+## 🎥 Ejecución profesional de hormigón impreso en Madrid
+
+[![Hormigón impreso Madrid – proceso real de ejecución](https://img.youtube.com/vi/mW7lTgVUw9s/hqdefault.jpg)](https://www.youtube.com/watch?v=mW7lTgVUw9s)
+
+---
