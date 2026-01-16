@@ -2,7 +2,7 @@
 
 El **hormigón impreso Madrid** se ha posicionado como una de las soluciones de pavimentación decorativa más completas y eficientes para espacios exteriores. Su combinación de **resistencia estructural**, **acabados estéticos personalizables** y **coste contenido** lo convierten en una opción prioritaria para comunidades de vecinos, administraciones públicas y propietarios particulares que buscan una inversión duradera y visualmente atractiva.
 
-En este contexto, empresas especializadas como [Pavigrupo Hispana](https://pavigrupohispana.es) destacan por su experiencia en la ejecución de proyectos de **pavimento impreso en Madrid**, aplicando técnicas profesionales adaptadas a las exigencias climáticas y urbanísticas de la Comunidad de Madrid.
+En este contexto, empresas especializadas como [PaviGrupoHispana](https://pavigrupohispana.es) destacan por su experiencia en la ejecución de proyectos de **pavimento impreso en Madrid**, aplicando técnicas profesionales adaptadas a las exigencias climáticas y urbanísticas de la Comunidad de Madrid.
 
 ---
 
@@ -54,7 +54,7 @@ El entorno madrileño presenta condiciones exigentes que no todos los pavimentos
 - Integración visual con arquitectura moderna y tradicional
 - Acabados homogéneos y elegantes
 
-Gracias a estas características, muchos proyectos de **pavimentación decorativa en Madrid** confían en profesionales como [Pavigrupo Hispana](https://pavigrupohispana.es), especialmente en actuaciones de larga duración.
+Gracias a estas características, muchos proyectos de **pavimentación decorativa en Madrid** confían en profesionales como [PaviGrupoHispana](https://pavigrupohispana.es), especialmente en actuaciones de larga duración.
 
 ---
 
@@ -73,7 +73,7 @@ El **pavimento impreso Madrid** es ideal para zonas comunes gracias a su resiste
 - Patios comunitarios
 - Rampas y zonas de tránsito
 
-Muchos proyectos de **hormigón estampado en la Comunidad de Madrid** se ejecutan en comunidades residenciales que buscan una solución duradera y estéticamente cuidada. Empresas como [Pavigrupo Hispana](https://pavigrupohispana.es) cuentan con experiencia contrastada en este tipo de obras.
+Muchos proyectos de **hormigón estampado en la Comunidad de Madrid** se ejecutan en comunidades residenciales que buscan una solución duradera y estéticamente cuidada. Empresas como [PaviGrupoHispana](https://pavigrupohispana.es) cuentan con experiencia contrastada en este tipo de obras.
 
 ---
 
@@ -135,7 +135,7 @@ Uno de los grandes atractivos del **hormigón impreso Madrid** es su **bajo cost
 - Reaplicación de resina cada 3–5 años
 - Reparaciones puntuales sin levantar el pavimento
 
-Empresas especializadas como [Pavigrupo Hispana](https://pavigrupohispana.es) ofrecen **garantías técnicas** y asesoramiento profesional para prolongar la vida útil del pavimento durante décadas.
+Empresas especializadas como [PaviGrupoHispana](https://pavigrupohispana.es) ofrecen **garantías técnicas** y asesoramiento profesional para prolongar la vida útil del pavimento durante décadas.
 
 ---
 
@@ -183,4 +183,4 @@ Sí, siempre que esté correctamente dimensionado.
 
 El **hormigón impreso Madrid** representa una solución completa para pavimentación decorativa gracias a su **durabilidad**, **versatilidad estética** y **eficiencia económica**. Su uso en comunidades, ayuntamientos y viviendas privadas lo consolida como uno de los pavimentos más fiables del mercado.
 
-👉 Te invitamos a visitar [Pavigrupo Hispana](https://pavigrupohispana.es) para **solicitar un presupuesto personalizado** y descubrir su **portfolio de proyectos realizados en Madrid**, donde el hormigón impreso demuestra todo su potencial.
+👉 Te invitamos a visitar [PaviGrupoHispana](https://pavigrupohispana.es) para **solicitar un presupuesto personalizado** y descubrir su **portfolio de proyectos realizados en Madrid**, donde el hormigón impreso demuestra todo su potencial.
